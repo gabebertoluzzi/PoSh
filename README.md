@@ -3,21 +3,4 @@
 
 
 Must congifure more Powershell.  MPOOOOORRRE POWER!
-p
-o
-w
-e
-r
-
-o
-v
-e
-r
-w
-h
-e
-l
-m
-i
-n
-g
+POWER##OVERWHELMING
